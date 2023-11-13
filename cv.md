@@ -1,7 +1,7 @@
-# Turevich Marta
+# Marta Turevich
 
 ### Contact information
-Email: turevichmarta@gmail.com
+Email: turevichmarta@gmail.com  
 Discord: @martathemarta
 
 ### Skills
